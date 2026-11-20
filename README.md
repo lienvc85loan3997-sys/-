@@ -9,7 +9,7 @@ https://7maotv2.com
 
 https://7maotv4.com
 
-永久中转：https://7maotv.com
+永久中转：https://7maotv6.com
 
 永久地址：https://7maoduanju.com
 
